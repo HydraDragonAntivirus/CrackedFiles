@@ -1,1 +1,2 @@
-Cracked via x64dbg
+- Cracked via x64dbg
+- Related with Xtend Project Team: https://www.xtendproject.com.tr/
